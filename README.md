@@ -15,7 +15,7 @@
 *   **免费共享 Apple ID：** 我们会不定期更新可用的非中国大陆地区（如美区）Apple ID，供您免费登录 App Store 下载 Shadowrocket。
 *   **详细使用教程：** 提供清晰的分步指南，指导您如何安全地使用共享 Apple ID 下载 Shadowrocket，并强调关键注意事项，确保您的设备安全。
     *   **点击这里获取最新共享账号：[Shadowrocket 免费共享账号](https://docs.applexp.com/free-accounts/Shadowrocket)**
-    *   **点击这里获取完全可用的独享账号：[Shadowrocket 独享账号购买](https://juzixp.com/)**
+    *   **点击这里获取完全可用的独享账号：[Shadowrocket 独享账号购买](https://shop.muooy.com/)**
 *   **定期更新：** 尽量保证账号的可用性，但由于共享账号的特殊性，有时可能会出现失效情况，请您理解。
 *   **安全至上：** 我们会反复强调使用共享 ID 的正确姿势，确保您的设备和数据安全。
 
@@ -40,7 +40,7 @@
 
 如果您需要一个长期稳定、安全可靠的 Shadowrocket 独享账号，避免共享账号带来的不便与风险，我们推荐您前往专业的平台购买。通过独享账号，您可以告别频繁更换账号的烦恼，享受更流畅、更私密的网络体验。
 
-**🚀 前往 [桔子小铺](https://juzixp.com/) 购买Shadowrocket独享账号，尊享稳定与安全！**
+**🚀 前往 [桔子小铺](https://shop.muooy.com/) 购买Shadowrocket独享账号，尊享稳定与安全！**
 
 ---
 
